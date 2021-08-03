@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Limieux
-- 👀 I’m interested in becoming smart
+- 👀 I’m interested in money
 - 🌱 I’m currently learning deep learning
 - 💞️ I’m looking to collaborate on small projects(?) 
 - 📫 How to reach me - email: williamk.sky@gmail.com or msg on instagram @js_kang02
